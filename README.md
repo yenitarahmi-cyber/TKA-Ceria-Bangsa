@@ -1,3 +1,3 @@
 # TKA Ceria Bangsa
 Klik Di Sini
-https://tka-ceria-bangsa.netify.app
+https://yenitarahmi-cyber.github.io/TKA-Ceria-Bangsa/index.html
